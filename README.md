@@ -27,6 +27,8 @@
 ## 📫 Contact
 📧 swapnalidhope88@gmail.com
 
+💼 Looking for Software Engineer / Java Developer opportunities.
+
 ## 🔗 LinkedIn
 https://www.linkedin.com/in/swapnali-dhope/
 
